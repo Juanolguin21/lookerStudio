@@ -11,5 +11,8 @@ Certificaciones de GA4: https://skillshop.credential.net/9c8407fa-7bea-49ea-8c0b
 
 Tambien adjunto en imagenes los diplomas de certificacion como imagenes.jpg!
 
+![storytelling](https://github.com/user-attachments/assets/de9c4c27-8190-44d7-9b18-76142e2faec0)
+
+
 
 
